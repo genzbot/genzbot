@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
- Genz Bot Adv Trust Me bhai log 😒
+ Fully Advance Genz Bot 😎 
 </p>
 
 # Community ❤️
